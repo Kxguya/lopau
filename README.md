@@ -1,4 +1,4 @@
-*Lopau 20y, Akatsuki Security Engineer*.
+*Lopau 20y, Akatsuki Member*.
 
  ────────────────────────────
 
