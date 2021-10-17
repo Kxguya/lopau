@@ -1,4 +1,4 @@
-*Lopau 20y, Akatsuki Member*.
+*Scared 19y, Akatsuki Creator*.
 
  ────────────────────────────
 
