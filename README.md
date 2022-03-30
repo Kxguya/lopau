@@ -1,4 +1,4 @@
-*lopau , Akatsuki Admin*.
+*Kaguya , Akatsuki Admin*.
 
  ────────────────────────────
 
